@@ -1,0 +1,1 @@
+# edge-games-privacy-policy
